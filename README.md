@@ -7,16 +7,20 @@
 
 **thelostworld**
 安全路上，与你并肩前行！！！！
-
-![ecdfe0b7f2dd19a1c854653de344b092.jpeg](evernotecid://3460F8E8-923C-4A46-A152-FD8E181842A5/appyinxiangcom/32327321/ENNote/p5?hash=ecdfe0b7f2dd19a1c854653de344b092)
+![065e6eb09c7f0e359b9ed02192293e8e](README.resources/扫码_搜索联合传播样式-白色版.png)
 
 个人知乎：
 https://www.zhihu.com/people/fu-wei-43-69/columns
 个人简书：
 https://www.jianshu.com/u/bf0e38a8d400
-个人CSDN：https://blog.csdn.net/qq_37602797/category_10169006.html
+个人CSDN：
+https://blog.csdn.net/qq_37602797/category_10169006.html
 个人博客园：
 https://www.cnblogs.com/thelostworld/
-FREEBUF主页：https://www.freebuf.com/author/thelostworld?type=article
-雀语博客主页：https://www.yuque.com/thelostworld
-![4b029825345899d23992b40ada6b2840.png](evernotecid://3460F8E8-923C-4A46-A152-FD8E181842A5/appyinxiangcom/32327321/ENNote/p5?hash=4b029825345899d23992b40ada6b2840)
+FREEBUF主页：
+https://www.freebuf.com/author/thelostworld?type=article
+雀语博客主页：
+https://www.yuque.com/thelostworld
+![fe3787bf5e9e95ca4d9bab0a81b67b6b](README.resources/logo.png)
+
+
